@@ -1,0 +1,2 @@
+# MDF
+Méthodologie Dialectique Fractale
