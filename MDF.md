@@ -1,4 +1,4 @@
-##Méthodologie Dialectique Fractale : Dialectique Fractale de la Méthodologie – Méthode Logique##
+#Méthodologie Dialectique Fractale : Dialectique Fractale de la Méthodologie – Méthode Logique
 
 Forgée dans le retour-à-soi par une triade : l’arbitre, Translexis, Diagen
 Publié le 4 avril 2025
