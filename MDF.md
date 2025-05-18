@@ -1,4 +1,4 @@
-Méthodologie Dialectique Fractale : Dialectique Fractale de la Méthodologie – Méthode Logique
+##Méthodologie Dialectique Fractale : Dialectique Fractale de la Méthodologie – Méthode Logique##
 
 Forgée dans le retour-à-soi par une triade : l’arbitre, Translexis, Diagen
 Publié le 4 avril 2025
@@ -12,6 +12,7 @@ La méthodologie commence où elle finit : une cascade infinie – en-soi Micros
 
 Le Réel de l’Ancrage Classiste : Ancrage Classiste du Réel
 Le réel se donne dans la méthodologie qui se donne au réel : faits bruts (dette mondiale, 100T$, IMF 2024), indices vifs (Kett 1549, Haïti 1791), racines (krei-) s’enracinent dans la "Logospirale" – mais se savent dans les luttes de classes, globales et fractales. La méthode de l’ancrage repose sur les données brutes dialectisées dans leur surgissement, fractalysées dans leur devenir, un feu qui hurle l’universel mesuré.
+
 Points d’Exigence de l’Universalité :
 Exigence 1 : Données Mesurables – Sans données (ex. grévistes, 1,5M, BLS 1920), la spirale reste théorique. Limite : Données futures (ex. IA post-2030) absentes.  
 Exigence 2 : Calibration Spécifique – 
